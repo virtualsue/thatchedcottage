@@ -2,6 +2,6 @@
 # Thatched Cottage Coffee
 Artisanally hand-roasted coffee made in very small batches in a traditional range oven.
 
-Contact [Sue Spence](mailto:virtuallysue@gmail.com) for more information.
+Contact [Sue Spence](mailto:sue@thatchedcottage.coffee) for more information.
 
 
